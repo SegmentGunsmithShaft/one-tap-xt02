@@ -1,4 +1,4 @@
-
+Experience one tap like never before with no-ban Scripts for one tap, the #1 Script. Includes unlimited stamina and instant win for unbeatable
 
 
 
